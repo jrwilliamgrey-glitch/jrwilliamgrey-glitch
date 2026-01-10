@@ -1,6 +1,6 @@
-### (text me on my socials freely if we are friends in PT !!)
+### (𝐚𝐧𝐝 𝐢 𝐚𝐦 𝐭𝐡𝐞 𝐟𝐢𝐫𝐞 𝐚𝐧𝐝 𝐢 𝐚𝐦 𝐭𝐡𝐞 𝐟𝐨𝐫𝐞𝐬𝐭, 𝐚𝐧𝐝 𝐢 𝐚𝐦 𝐚 𝐰𝐢𝐭𝐧𝐞𝐬𝐬 𝐰𝐚𝐭𝐜𝐡𝐢𝐧𝐠 𝐢𝐭)
 
-<img width="399" height="344" alt="image" src="https://github.com/user-attachments/assets/9da21065-e132-463b-80e1-e56e945cd6f0" /> jEeppers (yes my furrsona is looking at him guys trust!)
+<img width="399" height="344" alt="image" src="https://github.com/user-attachments/assets/9da21065-e132-463b-80e1-e56e945cd6f0" />
 
 some of my art just in case you wanna follow me on tg! https://t.me/william_grey
 
