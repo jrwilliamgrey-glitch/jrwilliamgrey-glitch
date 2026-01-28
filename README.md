@@ -1,3 +1,3 @@
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=jrwilliamgrey-glitch)
-![3a037aafe5e982b340a69c4dc376c084](https://github.com/user-attachments/assets/0d1d5ce6-63cf-43fb-9488-bb9b46a190d5)
+[URL=https://www.gifki.org/cat-kroliki-327.htm][IMG]https://www.gifki.org/data/media/327/krolik-animatsionnaya-kartinka-0421.gif[/IMG][/URL]
