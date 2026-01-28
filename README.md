@@ -1,3 +1,3 @@
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=jrwilliamgrey-glitch)
-![29aa4124a3a4d698f4264ed5e066c3e0](https://github.com/user-attachments/assets/e2f761db-24ed-4b7d-99af-971b2732d06b)
+![3a037aafe5e982b340a69c4dc376c084](https://github.com/user-attachments/assets/0d1d5ce6-63cf-43fb-9488-bb9b46a190d5)
