@@ -1,4 +1,4 @@
-![krolik-animatsionnaya-kartinka-0304](https://github.com/user-attachments/assets/80737219-b733-4aa5-85a4-26b1be461491)
+![a6f472a906b0a1e6766a973324c55f21](https://github.com/user-attachments/assets/8437ae1d-b9a6-487e-b8c9-da7dbb266905)
 
 &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;
   „ 𝑘𝑒𝑒𝑝 𝑟𝑢𝑛𝑛𝑖𝑛𝑔 𝑐𝑜𝑚𝑟𝑎𝑑𝑒..
